@@ -35,9 +35,10 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Body#####
-[A prayer for assistance against the Armada]H. R. (Henry Roberts), fl. 1585-1616.1588Approx. 4 KB of
+nes all the daies of our life, rendring vnto thee 〈…〉
+Maieſtie. And for ſo much as (O moſt gratious 
 #####Back#####
-[A prayer for assistance against the Armada]H. R. (Henry Roberts), fl. 1585-1616.1588Approx. 4 KB of
+Imprinted at London by Edward Allde for Hency Car. 1588.
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
